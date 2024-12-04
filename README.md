@@ -3,4 +3,4 @@ Dokumentáció word:
 
 
 Powerpoint: 
-  - Valami
+  - Link helye
