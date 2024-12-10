@@ -3,4 +3,4 @@ Dokumentáció word:
 
 
 Powerpoint: 
-  - Link helye
+  - https://1drv.ms/p/c/832340c4a4b605c3/EQdXgEx_OgtLuMKJM6XHjjAB5Hlx3Y7whPFQN_cxlvcMuA?e=bT1ajQ
